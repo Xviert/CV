@@ -1,1 +1,2 @@
 # CV
+[GABRIEL DE JESUS XAVIER DE HARO.pdf](https://github.com/Xviert/CV/files/9452300/GABRIEL.DE.JESUS.XAVIER.DE.HARO.pdf)
